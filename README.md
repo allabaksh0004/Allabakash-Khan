@@ -1,2 +1,2 @@
-# Allabakash-Khan
+Allabakash Khan
 Music producer artist composer
